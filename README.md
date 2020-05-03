@@ -9,7 +9,7 @@
 結果居然進了前八名，出乎意料的好
 
 ### 院慶表演
-<img src="https://pics.images.ac.cn/image/5eae2749cf5a3.html">
+<img src="https://pics.images.ac.cn/image/5eae2a7403a26.html">
 全班都上台演出 大成功🎉
 
 ### 運動會
