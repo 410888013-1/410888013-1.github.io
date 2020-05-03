@@ -29,6 +29,11 @@
 <img src="https://pics.images.ac.cn/image/5eae275e7035f.html">
 去那邊等ㄌ一個晚上，結果等待的是天亮不是日出ಥ_ಥ
 
+### Scratch社團
+##### 去志學國小教社團課
+<img src="https://pics.images.ac.cn/image/5eae36d44c1fc.html">
+那邊的小朋友也很可愛而且很喜歡上電腦課🎮
+
 ### 你來，做大學生
 ##### 心靈捕手
 <img src="https://pics.images.ac.cn/image/5eae27508f494.html">
