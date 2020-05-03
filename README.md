@@ -28,6 +28,6 @@
 
 
 ### 揚帆協會的恩典之家
-<img src="https://pics.images.ac.cn/image/5eadb1952ea88.html">
+<img src="https://pics.images.ac.cn/image/5eae26ebc2607.html">
 
 # [返回主畫面](https://410888013.github.io/)
